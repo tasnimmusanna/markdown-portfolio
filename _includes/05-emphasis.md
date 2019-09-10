@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I like **writing**. Its *very* fun, and is a **great** way to spend your *free time*, and *express* your **creativity!** 
